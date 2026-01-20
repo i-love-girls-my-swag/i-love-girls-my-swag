@@ -4,7 +4,16 @@
 
 ## quick FYI
 
+
 im really bad at communicating, please respect that.
+
+
 PLEASE dont bring religion when im gossiping ! ! !
+
+
 found me on GTCS. im mostly in gtc
+
+
 ENGLISH is not my first language!!!!!!!
+
+
