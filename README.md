@@ -5,10 +5,7 @@
 ## quick FYI
 
 
-im really bad at communicating, please respect that.
-
-
-PLEASE dont bring religion when im gossiping ! ! !
+im really bad at communicating
 
 
 found me on GTCS. im mostly in gtc
