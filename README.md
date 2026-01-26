@@ -1,4 +1,4 @@
 heywanttoseemybutt!heywanttoseemybutt!heywanttoseemybutt!heywanttoseemybutt!heywanttoseemybutt!heywanttoseemybutt!heywanttoseemybutt!
 
-# thankyou all for the support!!!!! :heart: :heart: :heart:
+# thankyou all for the support!!!!! heart emoji heart emoji heart emoji
 
